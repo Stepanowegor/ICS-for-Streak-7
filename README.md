@@ -1,2 +1,2 @@
-ICS-for-Streak-7
+ICS-for-Dell Streak-7 Работа ЗАКОНЧАНА! 
 ================
